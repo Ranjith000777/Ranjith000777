@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ranjith000777
 - 👀 I’m interested in CODING
-- 🌱 I’m currently learning Ist YEAR
+- 🌱 I’m currently learning IIst YEAR
 - 💞️ I’m looking to collaborate
 
 
